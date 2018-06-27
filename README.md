@@ -1,0 +1,2 @@
+# fuckingtired
+Už ani nevidim. 
